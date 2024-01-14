@@ -1,1 +1,5 @@
-Kristan Koeplin5
+Kristan Koeplin
+koeplink@oregonstate.edu
+blue
+Pretty Lights
+
